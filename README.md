@@ -1,2 +1,0 @@
-# sngwrla.github.io
-wear
